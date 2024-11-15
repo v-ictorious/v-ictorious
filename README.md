@@ -1,8 +1,8 @@
 <p align="center"> 
-    <img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_3781.png"/>
+    <img src="https://files.catbox.moe/hcvbuq.png"/>
     <img src="https://komarev.com/ghpvc/?username=v-ictorious&label=greetings+!&color=703b79&style=flat-square"/>
 <p align="center">
-<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_3779.png"/>
+<img src="https://files.catbox.moe/v6rf5c.png"/>
 </p>
 
 <p align="center">
@@ -21,19 +21,19 @@
   </p>
 
 <p align="center">
-<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_3780.png"/>
+<img src="https://files.catbox.moe/9sgmgs.png"/>
 </p>
 
 
 <p align="center">
-<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_3782.png"/>
+<img src="https://files.catbox.moe/99oil6.png"/>
 </p>
 <p align="center">
   <img src=https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&cover_image=true&theme=novatorem&show_offline=false&background_color=725b73&interchange=false&bar_color=f9eed9&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=h63e9eve7j8iinoi3disbnwky&redirect=true)> 
 </a>
   
 <p align="center">
-<img src="https://file.garden/ZrgE6xyrrgxh47YJ/IMG_3782.png"/>
+<img src="https://files.catbox.moe/99oil6.png"/>
 </p>
 
 <p align="center">
